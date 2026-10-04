@@ -10,7 +10,7 @@
 <p align=center> <img src="https://file.garden/ZxmyEiQL6hzek0ih/wwhiteborder" width="200"/> </p>
 <p align=center> ㅤ <a href=https://curtainc4ll.atabook.org/>ATABOOK</a> ㅤ <a href=>STRAWPAGE (WIP)</a> ㅤ <a href=https://pronouns.cc/@wifys>PRONOUNS</a>ㅤ  </p>
 <p align=center> !!heavy dni boundary breakers!! </p>
-the chunguses : <a href=https://github.com/VilLeynn>@VilLeynn</a> <a href=https://github.com/BackstageAlchemist>@BackstageAlchemist</a> <a href=https://github.com/puppyfes>@puppyfes</a> <a href=https://github.com/WhispyVibez>@WhispyVibez</a> <a href=https://github.com/Emu0312>@Emu0312</a>
+the chunguses : <a href=https://github.com/VilLeynn>@VilLeynn</a> <a href=https://github.com/BackstageAlchemist>@BackstageAlchemist</a> <a href=https://github.com/puppyfes>@puppyfes</a> <a href=https://github.com/WhispyVibez>@WhispyVibez</a> <a href=https://github.com/Emu0312>@Emu0312</a> <a href=https://github.com/theconqueringprotagonista>@theconqueringprotagonista</a>
 
 <p align=center> <img src="https://file.garden/ZxmyEiQL6hzek0ih/wwhiteborder" width="200"/> </p>
 
