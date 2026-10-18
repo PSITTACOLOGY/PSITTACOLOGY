@@ -6,7 +6,7 @@
         < . . HOW LONG ARE YOU GOING TO KEEP THIS BIT UP ? > 
 
 <p align=center>‎ . ಄ㅤㅤ ${\textsf{\color{#c28adb} fies}}$ ㅤ‎ㅤ ${\textsf{\color{#a8abe3} rui}}$ㅤ‎ㅤ ${\textsf{\color{#db8ace} ronin}}$ </p>
-<p align=center> ${\textsf{\color{#d7c8e8} iwecㅤ ㅤc+hㅤ ㅤsemi-verbal ㅤ ㅤᶻz﹒}}$ </p>
+<p align=center> ${\textsf{\color{#d7c8e8} intㅤ ㅤc+hㅤ ㅤsemi-verbal ㅤ ㅤᶻz﹒}}$ </p>
 <p align=center> <img src="https://file.garden/ZxmyEiQL6hzek0ih/wwhiteborder" width="200"/> </p>
 <p align=center> ㅤ <a href=https://curtainc4ll.atabook.org/>ATABOOK</a> ㅤ <a href=>STRAWPAGE (WIP)</a> ㅤ <a href=https://pronouns.cc/@wifys>PRONOUNS</a>ㅤ  </p>
 <p align=center> !!heavy dni boundary breakers!! </p>
