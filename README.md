@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=kmshirorui&label=ㅤㅤgive‎ㅤmeㅤtheㅤspyglass.ㅤㅤ&color=bb95ed)
+![](https://komarev.com/ghpvc/?username=kmshirorui&label=ㅤㅤgive‎ㅤmeㅤtheㅤspyglass.ㅤㅤ&color=c77c4a)
 
 <p align=center> <img src="https://file.garden/ZxmyEiQL6hzek0ih/Untitled1497_20261104214735.png" alt="psittacology" width=/> </p>
 
